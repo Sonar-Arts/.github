@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there
 
 We are on a journey to make great adventures with great games.
 
